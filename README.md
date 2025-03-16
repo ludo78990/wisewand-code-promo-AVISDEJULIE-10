@@ -1,4 +1,4 @@
-<h2>Code Promo WiseWand : <b>AVISDEJULIE</strong> - 10% A VIE !</h2>
+<h2>Code Promo WiseWand : <b>AVISDEJULIE</b> - 10% A VIE !</h2>
 <p>Redacteur IA Francais : WiseWand</p>
 <p><a title="WiseWand Code Promo" href="https://wisewand.ai/?fpr=ludovic64"><img src="https://avisdejulie.fr/wp-content/uploads/2025/03/logo_wisewand.png" alt="wisewand code promo AVISDEJULIE -15% A vie" title="wisewand code promo AVISDEJULIE -15% A vie" width="841" height="151" /></a></p>
 <p><a title="WiseWand Code Promo" href="https://wisewand.ai/?fpr=ludovic64">[Activer le code promo ici] : WiseWand Code Promo</a></p>
